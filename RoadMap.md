@@ -51,5 +51,3 @@ Date - 5/10/2026
 </H2>
 
 
-The Week 4 Task is not done yet.
-Beacuz of Exams I pasued the work for this week, and i will continue it next week
